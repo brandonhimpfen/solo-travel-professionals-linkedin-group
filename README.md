@@ -1,1 +1,1 @@
-# solo-travel-professionals-linkedin-group
+# Solo Travel Professionals LinkedIn Group
